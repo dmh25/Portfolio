@@ -1,1 +1,0 @@
-https://web.njit.edu/~dmh25/fall2020is117/how_it_works/index.html
